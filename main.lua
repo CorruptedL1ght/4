@@ -1,1 +1,1 @@
-https://discord.gg/d9jJ7Gprsu
+-- join https://discord.gg/d9jJ7Gprsu
